@@ -1,2 +1,5 @@
-# one-piece-bounty-rush-codes-unlimited-diamonds
-ONE PIECE Bounty Rush Codes for unlimited diamonds that work 2022 guide
+# ONE PIECE Bounty Rush Codes for unlimited diamonds that work 2022 guide
+
+ONE PIECE Bounty Rush Codes for unlimited diamonds that work 2022 guide - Continuous clicking on the screen will perform different combination actions for each click until your maximum combination is 4. The more you move on the combo tree, the more damage you do. Be careful, combos are good, but they do lock you in certain actions and make it harder for you to avoid the enemy's attack, so try the maximum combo only when you're sure you can complete it all. Time is everything. Click + hold attack is one of the most frequently used actions in the whole reward sprint. They are guaranteed to hit any enemy unit in your path and can charge from a distance within effective range. Maintaining attack is very effective for approaching enemy units or destroying large groups. The only real problem with keeping attacking is that you can only attack in the locked direction now, so don't use this when surrounded by enemies.
+
+<a href="https://non-cgplus.com/one-piece-bounty-rush/">go here</a>
